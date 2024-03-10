@@ -2,7 +2,9 @@
 - 👀 I’m interested in cosplay
 - 🌱 I’m currently learning git hub
 - 💞️ I’m looking to collaborate on 3D projects 
-- 📫 How to reach me ig:tytaniiaa
+- 📫 How to reach me no dobra dam email, nastepnym razem XD
+
+
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I have a orange cat, named Cassio
 
